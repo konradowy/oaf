@@ -1,1 +1,1 @@
-For support or feedback, please contact: feedback@falkowski.pm
+For support or feedback, please contact: feedback at falkowski dot pm
